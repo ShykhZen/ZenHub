@@ -1,2 +1,2 @@
 # ZenHub
-Welcome to the world full of an aesthatic assasories
+Welcome to the World full of an Aesthatic Assasories
